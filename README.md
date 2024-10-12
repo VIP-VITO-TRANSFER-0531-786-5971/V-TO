@@ -1,4 +1,4 @@
-[0531 786 5971](tel:+905317865971)
+<a href="tel:+905317865971">0531 786 5971</a>
 
 VIP Vito Transfer: İstanbul'da Lüks ve Konforlu Ulaşım Deneyimi
 
